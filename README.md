@@ -1,6 +1,6 @@
 <p align="center">
   <a href="https://github.com/lurisdefacer">
-  <img src="[img/3uvT.gif](https://media.tenor.com/McPQygGOuXYAAAAj/gladgers-hacker-gers-guardians-of-galaxy.gif)"></img><p>
+  <img src="https://media.tenor.com/McPQygGOuXYAAAAj/gladgers-hacker-gers-guardians-of-galaxy.gif"></img><p>
   </a>
 </p>
 
