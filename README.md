@@ -1,4 +1,6 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Luris
+https://media.tenor.com/McPQygGOuXYAAAAj/gladgers-hacker-gers-guardians-of-galaxy.gif
+
+"Hak Yiyen Hack Yer" QWQWEQWEQW
 =============================================================================================================================
 
 
