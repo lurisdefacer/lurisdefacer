@@ -8,8 +8,8 @@
 =============================================================================================================================
 
 
-* ✉️  You can contact me at [lurisdefacer@gmail.com](mailto:lurisdefacer@gmail.com)
-
+* ✉️  You can contact me at
+* I am unreachable.
 ### Skills
 
 <p align="left">
